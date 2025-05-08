@@ -1,4 +1,4 @@
-# # **Dead Rails Script 2025 | Keyless OP GUI | Auto Farm Bonds, Jade Sword, Godmode, No Clip, TP to End, PC/Mobile**
+# **Dead Rails Script 2025 | Keyless OP GUI | Auto Farm Bonds, Jade Sword, Godmode, No Clip, TP to End, PC/Mobile**
 
 # Dead Rails Script – 2025 Ultimate Keyless OP GUI
 
